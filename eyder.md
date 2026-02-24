@@ -1,0 +1,3 @@
+Hola, esta es mi review
+
+Lo que mencionas sobre la "calidad cinematográfica" es el punto más fuerte. Al ser un formato OVA, cada episodio cuenta con un presupuesto superior, lo que permite que el diseño de personajes de Hirano (con esas sombras profundas y sonrisas maníacas) cobre vida. La transición de Alucard entre sus diferentes estados de restricción es, visualmente, de lo mejor que ha dado el género Seinen.
